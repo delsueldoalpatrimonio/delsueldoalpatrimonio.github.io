@@ -1,1 +1,0 @@
-# delsueldoalpatrimonio.github.io
